@@ -1,1 +1,1 @@
-# 3.-Impact-of-different-types-of-food-on-Human-health
+# Impact-of-different-types-of-food-on-Human-health
